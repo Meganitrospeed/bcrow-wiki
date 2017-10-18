@@ -4,40 +4,6 @@
 # Our history
 Our history is a small resume of several sexual harrasments and some other bullshit i wont use time writing it in in english so im going to write it in spanish
 
-EL PENE ES GRANDE
-Y JUGOSO
-g
-g
-g
-g
-g
-g
-
-g
-g
-g
-g
-g
-g
-g
-g
-g
-g
-g
-g
-g
-g
-g
-g
-g
-g
-g
-g
-g
-g
-g
-
-g
 # Battles
 
 
