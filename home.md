@@ -6,6 +6,38 @@ Our history is a small resume of several sexual harrasments and some other bulls
 
 EL PENE ES GRANDE
 Y JUGOSO
+g
+g
+g
+g
+g
+g
+
+g
+g
+g
+g
+g
+g
+g
+g
+g
+g
+g
+g
+g
+g
+g
+g
+g
+g
+g
+g
+g
+g
+g
+
+g
 # Battles
 
 
