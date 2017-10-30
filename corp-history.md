@@ -41,3 +41,5 @@ Over the course of the next seven to eight months BCROWs participated in a limit
 On Y.C. 119.10.10 an article posted on EVE News24 http://evenews24.com/2017/10/10/undiplomatic-how-a-bad-diplomat-led-his-coalition-to-a-war-they-didnt-want/ formally declared that the Guardians of the Galaxy coalition (of which BCROWs is a member) had begun their war on the Drone Region Federation, for various reasons. Since the declaration of that war The Black Crow Bandits have seen themselves be top of the killboard for SLYCE alliance consistently as well as helping SLYCE to be one of the highest participating alliances to date.
 ## New Allies
 The corporation 4.20ly Mining Range has become a close friend and ally to the Black Crow Bandits helping to keep our industrial production at the highest output we can, as well as flying on various roams and other PVP ops.
+
+## Notes=============================================
