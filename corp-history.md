@@ -1,4 +1,4 @@
-<!-- TITLE: Corp History --><ref"Interview with Rush Crosix for most of the content"></ref>
+`<!-- TITLE: Corp History -->`<ref>"Interview with Rush Crosix for most of the content"></ref>
 <!-- SUBTITLE: The Complete History of The Black Crow Bandits -->
 
 # Foundation and Growth
@@ -42,4 +42,4 @@ On Y.C. 119.10.10 an article posted on EVE News24 http://evenews24.com/2017/10/1
 ## New Allies
 The corporation 4.20ly Mining Range has become a close friend and ally to the Black Crow Bandits helping to keep our industrial production at the highest output we can, as well as flying on various roams and other PVP ops.
 
-## Notes=============================================
+## Notes
