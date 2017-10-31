@@ -1,4 +1,4 @@
-<!-- TITLE: Corp History -->[^1]()
+<!-- TITLE: Corp History -->([^1])
 <!-- SUBTITLE: The Complete History of The Black Crow Bandits -->
 
 # Foundation and Growth
