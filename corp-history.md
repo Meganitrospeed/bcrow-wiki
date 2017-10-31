@@ -1,4 +1,4 @@
-[<!-- TITLE: Corp History -->^longnote]:Interview with Rush Crosix
+<!-- TITLE: Corp History -->
 <!-- SUBTITLE: The Complete History of The Black Crow Bandits -->
 
 # Foundation and Growth
@@ -44,6 +44,3 @@ The corporation 4.20ly Mining Range has become a close friend and ally to the Bl
 
 ## Notes
 ==References==
-<references />
-
-{{reflist}}
