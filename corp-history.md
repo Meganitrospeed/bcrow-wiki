@@ -48,6 +48,5 @@ On Y.C. 119.10.10 an article posted on EVE News24 http://evenews24.com/2017/10/1
 The corporation 4.20ly Mining Range has become a close friend and ally to the Black Crow Bandits helping to keep our industrial production at the highest output we can, as well as flying on various roams and other PVP ops.
 
 
-#  References ***
-
-[^1]:(Interview with Rush Crosix)
+#  References  
+***
