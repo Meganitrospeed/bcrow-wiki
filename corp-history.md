@@ -1,4 +1,4 @@
-<!-- TITLE: Corp History -->[^1](Interview with Rush Crosix)
+<!-- TITLE: Corp History -->[^1]<ref>Interview with Rush Crosix</ref>
 <!-- SUBTITLE: The Complete History of The Black Crow Bandits -->
 
 # Foundation and Growth
