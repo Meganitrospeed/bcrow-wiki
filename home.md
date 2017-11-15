@@ -2,7 +2,7 @@
 <!-- SUBTITLE: The Home of the Crows -->
 
 # Our history
-*Timeline
+[Our History](https://wiki.bcrow.net/)
 # Battles
 
 
