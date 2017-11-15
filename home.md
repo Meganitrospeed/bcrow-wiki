@@ -2,7 +2,7 @@
 <!-- SUBTITLE: The Home of the Crows -->
 
 # Table of Contents
-[Our History](https://wiki.bcrow.net/corp-history)
+[The History of The Black Crow Bandits](https://wiki.bcrow.net/corp-history)
 
-
+[The Glorious Leadership of The Black Crow Bandits](https://wiki.bcrow.net/our-glorious-leadership) 
 
