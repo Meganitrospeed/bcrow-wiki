@@ -1,8 +1,8 @@
 <!-- TITLE: BCROW -->
 <!-- SUBTITLE: The Home of the Crows -->
 
-# Our history
-[Our History](https://wiki.bcrow.net/)
-# Battles
+# Table of Contents
+[Our History](https://wiki.bcrow.net/corp-history)
+
 
 
