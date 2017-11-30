@@ -8,4 +8,6 @@ Stephen Nukem has always desired one thing above all others, fighting against ot
 # Experiences
 In addition to his pride in the progress that the line members of The Black Crow Bandits have made Stefan Nukem has taken pleasure in many individual events with the corp, both on deployment and at home.
 
-* In Immensea we were 
+* In Immensea The Black Crow Bandits banded together in a way that we hadn't before
+* We helped to band the coalition together in particular to kill Defiant Daniel as he kept coming through our space
+* Managed to single-handedly boosh a goon fleet to its destruction
