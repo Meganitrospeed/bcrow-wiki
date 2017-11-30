@@ -3,3 +3,5 @@
 
 # Early Career
 # Founding The Black Crow Bandits
+# Roles
+# Experiences
