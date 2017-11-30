@@ -11,3 +11,5 @@ In addition to his pride in the progress that the line members of The Black Crow
 * In Immensea The Black Crow Bandits banded together in a way that we hadn't before
 * We helped to band the coalition together in particular to kill Defiant Daniel as he kept coming through our space
 * Managed to single-handedly boosh a goon fleet to its destruction
+
+Nukem has also noted that the current direction of The Black Crow Bandits is something to be proud of as members. It is bittersweet that we are no longer able to field our entire corp on the field at a single time due to our growth in numbers and time zones but this is a very positive direction for the corp.
