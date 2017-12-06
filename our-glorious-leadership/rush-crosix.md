@@ -10,3 +10,6 @@ In YC 118 Rush took up his mantle of destiny to grow, learn, teach, and burn all
 # Roles
 Founder, CEO, Fleet Commander
 # Experiences
+Of the many experiences Rush Crosix has had in New Eden a few stand above the rest:
+* That when push came to shove, BCROW stood up in Querious and took fights regardless of being out-shipped, out-skilled, and out-numbered. At the end of the day BCROW proved their worth.
+* That no matter what he seems to do, BCROW still grows, still gets better, and still keeps to the origional ideals of the corp.
