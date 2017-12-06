@@ -8,4 +8,5 @@ In YC 117 Rush Crosix as capsuleer first took to the interstellar space of New E
 # Founding The Black Crow Bandits
 In YC 118 Rush took up his mantle of destiny to grow, learn, teach, and burn all that he could. On YC 118.09.04 The Black Crow Bandits was founded. Seeking new capsuleers with low skill points that he could influence, mold, and form into an elite force of destruction. Rush used his unholy powers of persuasion to recuit dozens of capsuleers and began his vision by extorting high security corporations. Rush waiting, biding his and the corp's time, before moving to null security space, which they finally did when Rush moved to Querious with Sarcos Federation.
 # Roles
+Founder, CEO, Fleet Commander
 # Experiences
