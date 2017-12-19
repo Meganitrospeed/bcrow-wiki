@@ -4,5 +4,5 @@
 # Table of Contents
 [The History of The Black Crow Bandits](https://wiki.bcrow.net/corp-history)
 
-[Under Construction: The Glorious Leadership of The Black Crow Bandits](https://wiki.bcrow.net/our-glorious-leadership) 
+[The Glorious Leadership of The Black Crow Bandits](https://wiki.bcrow.net/our-glorious-leadership) 
 
